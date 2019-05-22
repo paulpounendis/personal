@@ -10,7 +10,7 @@ We run lectures, workshops, bootcamps, many events and soon student projects to 
 I would like to participate in the Genesis DAO, and learn how our potential initiatives would benefit others in the community. 
 I have learnt about this from my great friend Daniel Bar, who said this would be a great fit for us!
 
-Social-Identity Verification Tweet #SIVT: 
+Social-Identity Verification Tweet #SIVT: https://twitter.com/PPounendis/status/1131064900946501632?s=19
 
 Here are my socials:
 
