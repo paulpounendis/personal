@@ -1,9 +1,10 @@
 Reputation Request
 
 Paul Pounendis 
-EEE/Physics Major, Community Engagement, Positive Energy Scaler, Board Member Blockchain Australia
+EEE/Physics Major, Community Engagement, Positive Energy Scaler, Board Member [Blockchain Australia] (https://blockchainaustralia.org)
 
-Hi Genesis DAO community, my name is Paul Pounendis, current President of Adelaide Blockchain, a 15+ student run organization!
+Hi Genesis DAO community, my name is Paul Pounendis, current President of [Adelaide Blockchain] (https://facebook.com/adelaideblockchain), a 15+ student run organization!
+
 We run lectures, workshops, bootcamps, many events and soon student projects to engage the students and community on Blockchain technology!
 
 I would like to participate in the Genesis DAO, and learn how our potential initiatives would benefit others in the community. 
