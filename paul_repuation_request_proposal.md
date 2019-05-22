@@ -8,7 +8,7 @@ Hi Genesis DAO community, my name is Paul Pounendis, current President of [Adela
 We run lectures, workshops, bootcamps, many events and soon student projects to engage the students and community on Blockchain technology!
 
 I would like to participate in the Genesis DAO, and learn how our potential initiatives would benefit others in the community. 
-I have learnt about this from my great friend Daniel Bar, who said this would be a great fit for us!
+I have learnt about this from my great friend Daniel Bar, who said this would be great for us to be apart of!
 
 Social-Identity Verification Tweet #SIVT: https://twitter.com/PPounendis/status/1131064900946501632?s=19
 
